@@ -60,6 +60,21 @@ Filters and parameters to enable dynamic filtering of the data
 
 
 
+![Image](https://github.com/user-attachments/assets/ba417d72-795e-4138-8fb9-0a2d82eb7717)
+
+![Image](https://github.com/user-attachments/assets/e9f6d029-be9d-4584-8548-6efc7dfddbce)
+
+![Image](https://github.com/user-attachments/assets/8109669d-2a4b-4471-bffd-0610025c3f62)
+
+https://github.com/user-attachments/assets/0bef7a8e-aa0d-4a5c-ab2c-acb9bad56942
+
+
+
+
+
+
+
+
 
 
 
